@@ -1,0 +1,1 @@
+# Sifat2-Cahaya
